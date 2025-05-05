@@ -28,7 +28,7 @@ I was part of a small ethical hacking group that once warned an Israeli motorbik
 - [GitHub](https://github.com/5hezy)
 - [LinkedIn](https://linkedin.com/in/5hezy)
 - [Twitter](https://twitter.com/5hezy)
-- [YouTube](https://youtube.com/@5hezy)
+- [YouTube](https://youtube.com/@sh4hz4ib)
 - [Pinterest](https://pinterest.com/5hezy)
 - [My Old Blog (2013)](https://sh4hz4ib.blogspot.com)
 
